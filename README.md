@@ -5,5 +5,5 @@
 4.
 5.Team Lead:https://trailblazer.me/id/rajer24
 6.Team member:https://trailblazer.me/id/vinbe1
-7.Team member:https://trailblazer.me/id/strailhead
+7.Team member:https://trailblazer.me/id/smuniyandi3
 8.Team member:https://trailblazer.me/id/ssneha61
